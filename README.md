@@ -1,3 +1,2 @@
 # FurrHats
-Furry Hats for Novetus
-Wowwie !!!
+You can now be a furry in Novetus!!!!!!!!
