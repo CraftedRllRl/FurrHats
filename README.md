@@ -1,2 +1,2 @@
-# FurrHats
-You can now be a furry in Novetus!!!!!!!!
+# How to Furry in Novetus!
+1. :D
